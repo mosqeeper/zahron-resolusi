@@ -1,0 +1,1 @@
+# zahron-resolusi
